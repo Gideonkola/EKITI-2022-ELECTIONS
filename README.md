@@ -1,5 +1,5 @@
 
-# EKITI '2022 ELECTIONS
+# EKITI '2022 Gubernatorial Election
 
 
 # Introduction
